@@ -1,4 +1,3 @@
-# Datenschutzhinweise
 Zum Schutz der Daten, die für die Marktumfrage von PaCo und damit Julius Knuff von Teilnehmenden der Erhebung freiwillig zur Verfügung gestellt werden, gelten folgende Regelungen.
 
 Nachfolgend ist zu unterscheiden:
